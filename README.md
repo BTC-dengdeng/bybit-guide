@@ -3,7 +3,7 @@
 
 ## 2026年6月Bybit邀请码最新版
 
-如果你正在寻找最新的 Bybit 邀请码（Bybit Referral Code），目前可使用：
+如果你正在寻找2026年6月份最新的 Bybit 邀请码（Bybit Referral Code），目前可使用：
 
 **邀请码：**
 
