@@ -1,6 +1,7 @@
 # 2026年6月Bybit邀请码｜最新Bybit邀请码(Referral Code):BYOFFICIAL + 最高5,100 USDT新人奖励指南
 <img width="1983" height="793" alt="4f538708-fe25-4004-bfc9-cfad3f88769d" src="https://github.com/user-attachments/assets/220d7566-0c01-41a8-9ab0-9ce482c7b07a" />
-## Bybit邀请码2026最新版
+
+## 2026年6月Bybit邀请码最新版
 
 如果你正在寻找最新的 Bybit 邀请码（Bybit Referral Code），目前可使用：
 
